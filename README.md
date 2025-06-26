@@ -4,4 +4,4 @@ MrNholi here 👋
 - 🌱 Learning C++
 - 🙃 I enjoy creating PS for random games
 
-AnemoTeam founder: https://discord.gg/bU3ZsTcz2n 󠁛󠀣󠀰󠀰󠁣󠀲󠀵󠀴󠀬󠀣󠁢󠀱󠀶󠀴󠁦󠁦
+AnemoTeam founder: https://discord.gg/QTcZRRjFTH 󠄹󠂬​󠟲󠏿​󠀁󠄙󠍂󠃝󠀠󠂖
